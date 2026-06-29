@@ -1,4 +1,4 @@
-# 
+# آمن Affinity Photo قوالب لـ Mac OS | حصرية Affinity Photo قوالب لـ PC Windows. مع تصدير SVG و تشويه الغلاف — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
